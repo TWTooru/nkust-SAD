@@ -23,4 +23,4 @@ LOL S87總冠軍
 更是毒奶大師 身負東方神秘力量
 他支持的隊伍沒一隊贏的
 ```
-> 以下是他的個人檔案[連結]([https://www.youtube.com/watch?v=dQw4w9WgXcQ&list=RDdQw4w9WgXcQ&start_radio=1](https://www.youtube.com/watch?v=YazQbKeM7ns))
+> 以下是他的個人檔案[連結](https://www.youtube.com/watch?v=YazQbKeM7ns)
